@@ -1,1 +1,0 @@
-# AR_Tipa_AIseedsProject2g1a5z
